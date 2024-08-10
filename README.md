@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @suchesh
+- 👀 I’m interested in AI...
+
